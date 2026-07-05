@@ -1,1 +1,6 @@
 # learn-github
+Episode 4: Glance through this one in bits and pieces. Theon escapes torture, only to find himself at the hands of another mysterious torturer. Jaime and Brienne start to bond. Varys and Tyrion also begin to bond, even as they're distrustful of the other. The Tyrells plan to marry Loras to Sansa. At Craster's keep, the Night's Watch kills Craster and Sam escapes with Gilly and her baby. Daenerys trades the dragon for the army and Missandei, and promptly orders the army to kill their former masters. Checkmate, Astapor.
+
+Episode 7: Stop for important plot points. Jojen, Bran and Meera plan to go across the wall, while wildling Osha takes Rickon somewhere safe. Jon Snow and Ygritte are now officially a couple. Tyrion's marriage to Sansa is finalised, angering Shae, Sansa's handmaiden and Tyrion's lover. Daenerys declares war on yet another city—Yunkai.
+
+Episode 9: This is where it all leads. Keep tissues handy. Watch the whole episode, and tune out while Jon Snow and Ygritte fight, Bran wargs and Daenerys burns. Sit up, when Robb Stark goes to the Twins to attend his cousin Edmure's marriage to the Frey daughter. Then watch through your fingers as the entire Stark party is betrayed and slaughtered, even as Arya watched. The Red Wedding is here.
